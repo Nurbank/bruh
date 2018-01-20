@@ -1,2 +1,2 @@
 # bruh
-eh
+I hate programming
